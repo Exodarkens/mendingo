@@ -1,2 +1,2 @@
 # mendingo
-sou
+sou ne nnpo;
